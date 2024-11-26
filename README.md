@@ -28,7 +28,8 @@ Utilizei o "ChatGPT" para realizar minha pesquisa sobre IAs Generativas como ass
 
 O e-book apresenta um conteúdo envolvente e visualmente rico, demonstrando como as IAs Generativas podem ser uma ferramenta poderosa na informação, educação e na disseminação do conhecimento. 
 
-  
+[LINK PARA O E-BOOK AQUI](https://www.canva.com/design/DAGWre4eP-w/oncxs3eJj0fSzZtRIaqKng/edit?utm_content=DAGWre4eP-w&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 
 ## 💭 Reflexão (Opcional) 
 
